@@ -16,7 +16,11 @@ I'm mostly offtab drawing or watching something, so whisper is best used to cont
 as u can tell im very into Vox Machina Currently ! ( an .. adult DnD cartoon )
 and heavily enjoy percival from the series / comic / campain !! 
 however that is NOT my only interest !! 
+
+
 to name a few i like ; 
+
 Borderlands / musicals / LoVM / JJK / DW / CRK / AOT and much more !
+
 PLEASE talk to me if any of these you KNOW !!  BUT DONT HATE ON THEM PLEASE, I HAVE ADHD AND AM HEAVILY FOND OF MY INTERESTS, AND ANYONE HATING ON THEM WOULD WELL UPSET ME TO A DEGREE.
 I can get rather defencive of my interests too, and my favourite characters !!
